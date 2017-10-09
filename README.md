@@ -1,1 +1,0 @@
-# skyscraper-get-inspired
